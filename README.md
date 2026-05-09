@@ -61,7 +61,7 @@ The current market is broken:
 
 ## 🤝 Let's Connect
 
-- 🌐 Website: www.fixonzo.in 
+- 🌐 Website: www.fixonzo.com
 - 📸 Instagram: Fixonzo  
 - 🐦 X (Twitter): Fixonzo  
 
